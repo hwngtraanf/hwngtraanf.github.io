@@ -2,7 +2,8 @@
 
 📍 Marburg, Germany • ✉️ vhtran.work@gmail.com • LinkedIn: [hungtranvan](https://www.linkedin.com/in/hungtranvan/)
 
-📄 **Download CV (PDF):** [Van_Hung_Tran_Resume.pdf](/assets/pdf/Van_Hung_Tran_Resume.pdf)
+📄 **Download CV English Version (PDF):** [Van_Hung_Tran_Resume_English.pdf](/assets/pdf/Van_Hung_Tran__Resume_English.pdf)  
+📄 **Download CV German Version (PDF):** [Van_Hung_Tran_Resume_German.pdf](/assets/pdf/Van_Hung_Tran__Resume_German.pdf)
 
 ---
 
